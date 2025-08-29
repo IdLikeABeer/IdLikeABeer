@@ -25,7 +25,7 @@ I'm IdLikeABeer!(not really)
 
 ---
 
-> _“ Derp .”_ – Derpy Hooves(?)
+> _“ What you eat is what you are.”_ – :O
 
 
 
