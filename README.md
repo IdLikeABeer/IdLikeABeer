@@ -1,4 +1,4 @@
-## https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fsearch%2Fderpy-gifs&psig=AOvVaw3N5BtcXb9l3qQfkvjGFNTm&ust=1756569382524000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCPDNi4KxsI8DFQAAAAAdAAAAABA2
+## I cant do shit here help
 
 <!--
 **IdLikeABeer/IdLikeABeer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
