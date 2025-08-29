@@ -17,7 +17,8 @@ I'm IdLikeABeer!(not really)
 - Im a talktive person so we could have a chat! :^3
 - Feel free to check out my stuff or leave a message.
 ##
-![Pearl and Marina](https://media1.tenor.com/m/S_rsjFlDo_oAAAAC/pearl-marina.gif)
+![SMG4 Meggy](https://your-new-host-link.gif)
+
 
 ---
 
