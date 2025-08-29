@@ -16,8 +16,7 @@ I'm IdLikeABeer!(not really)
 
 - Im a talktive person so we could have a chat! :^3
 - Feel free to check out my stuff or leave a message.
-- 
-![smg-4-meggy.gif](https://media.tenor.com/5L6N2lA3VnUAAAAM/smg-4-meggy.gif)
+  ![SMG4 Meggy](https://media.tenor.com/5L6N2lA3VnUAAAAM/smg-4-meggy.gif)
 ---
 
 > _“ Derp .”_ – Derpy Hooves(?)
