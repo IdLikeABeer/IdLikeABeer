@@ -1,4 +1,27 @@
-## I cant do shit here help
+## # 👋 Welcome to my GitHub!
+
+I'm IdLikeABeer!
+
+##
+
+- Comedic things make me happy
+- 🦑 I love splatoon 
+- 𝙐𝙝 𝙖𝙡𝙨𝙤 𝙄 𝙙𝙤𝙣𝙩 𝙝𝙖𝙫𝙚 𝙜𝙤𝙤𝙙 𝙜𝙧𝙖𝙢𝙢𝙖𝙧
+-𝙸 𝚍𝚘 𝚙𝚕𝚊𝚢 𝚛𝚘𝚋𝚕𝚘𝚡 𝚒𝚗𝚏𝚊𝚌𝚝 𝚋𝚞𝚝 𝙸𝚖 𝚗𝚘𝚝 𝚖𝚞𝚌𝚑 𝚘𝚗𝚕𝚒𝚗𝚎
+-𝐈𝐝 𝐥𝐨𝐯𝐞 𝐭𝐨 𝐜𝐡𝐚𝐭 𝐚𝐛𝐨𝐮𝐭 𝐟𝐚𝐧𝐝𝐨𝐦𝐬 𝐚𝐧𝐝 𝐬𝐡𝐨𝐰𝐬
+##
+
+![skill issue](https://media.tenor.com/2gHqA2rkFvAAAAAM/derpy-mylittlepony.gif)
+
+## !! Stuff
+
+- Im a talktive person so we could have a chat! :^3
+- Feel free to check out my stuff or leave a message.
+
+---
+
+> _“Muffins solve everything.”_ – Derpy Hooves(?)
+
 
 <!--
 **IdLikeABeer/IdLikeABeer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
