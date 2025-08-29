@@ -9,7 +9,7 @@ I'm IdLikeABeer!(not really)
 -𝙄 𝙡𝙤𝙫𝙚 𝙩𝙤 𝙥𝙡𝙖𝙮 𝙥𝙩 𝙬𝙝𝙚𝙣𝙚𝙫𝙚𝙧 𝙄 𝙝𝙖𝙫𝙚 𝙩𝙞𝙢𝙚 
 -𝘼𝙡𝙨𝙤 𝙄 𝙙𝙤𝙣𝙩 𝙝𝙖𝙫𝙚 𝙜𝙧𝙚𝙖𝙩 𝙚𝙣𝙜𝙡𝙞𝙨𝙝 𝙜𝙧𝙖𝙢𝙢𝙖𝙧｡
 
-##!! silly gif
+## 🦄 Favorite Gif
 
 ![skill issue](https://media.tenor.com/2gHqA2rkFvAAAAAM/derpy-mylittlepony.gif)
 
