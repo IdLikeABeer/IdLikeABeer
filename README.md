@@ -2,6 +2,9 @@
 
 I'm IdLikeABeer!(not really)
 
+##
+![Derpy MLP](https://media.tenor.com/U4lW2alizkwAAAAi/derpy-mlp.gif)
+
 ## Facts About Me
 
 - 𝙄𝙢 𝙞𝙣 𝙖 𝙡𝙤𝙩 𝙤𝙛 𝙛𝙖𝙣𝙙𝙤𝙢𝙨!! :𝘿
