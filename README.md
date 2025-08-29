@@ -1,26 +1,26 @@
-# Heyaa!!
+# 👋 Welcome to my GitHub!
 
-I'm IdLikeABeer!(not really)
+I'm IdLikeABeer!
 
-## Facts About Me
+## ✨ About Me
 
-- 𝙄𝙢 𝙞𝙣 𝙖 𝙡𝙤𝙩 𝙤𝙛 𝙛𝙖𝙣𝙙𝙤𝙢𝙨!! :𝘿
-𝙄 𝙡𝙞𝙠𝙚 𝙘𝙤𝙢𝙚𝙙𝙞𝙘 𝙤𝙧 𝙡𝙤𝙧𝙚 𝙧𝙚𝙡𝙖𝙩𝙚𝙙 𝙩𝙝𝙞𝙣𝙜𝙨❟ 𝙩𝙝𝙚𝙮 𝙢𝙖𝙠𝙚 𝙢𝙚 𝙝𝙖𝙥𝙥𝙮:) 
--𝙄 𝙡𝙤𝙫𝙚 𝙩𝙤 𝙥𝙡𝙖𝙮 𝙥𝙩 𝙬𝙝𝙚𝙣𝙚𝙫𝙚𝙧 𝙄 𝙝𝙖𝙫𝙚 𝙩𝙞𝙢𝙚 
--𝘼𝙡𝙨𝙤 𝙄 𝙙𝙤𝙣𝙩 𝙝𝙖𝙫𝙚 𝙜𝙤𝙤𝙙 𝙚𝙣𝙜𝙡𝙞𝙨𝙝 𝙜𝙧𝙖𝙢𝙢𝙖𝙧｡
+- 💙 Fan of **SMG4** (memes, chaos, and spaghetti!)
+- 🦑 Love playing **Splatoon**
+- 🐴 Regular on **Pony Town**
+- 🌈 Big fan of **My Little Pony (MLP)**
 
-##![skill issue](https://media.tenor.com/2gHqA2rkFvAAAAAM/derpy-mylittlepony.gif)
+## 🦄 Favorite Gif
+
+![skill issue](https://media.tenor.com/2gHqA2rkFvAAAAAM/derpy-mylittlepony.gif)
 
 ## 📫 Let's Connect!
 
-- Im a talktive person so we could have a chat! :^3
-- Feel free to check out my stuff or leave a message.
+- Always down to chat about games or ponies!
+- Feel free to check out my projects or leave a message.
 
 ---
 
-> _“Muffins solve everything.”_ – Derpy Hooves(?)
-
-
+> _“Muffins solve everything.”_ – Derpy Hooves
 
 <!--
 **IdLikeABeer/IdLikeABeer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
