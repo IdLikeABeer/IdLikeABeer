@@ -10,7 +10,7 @@ I'm IdLikeABeer!(not really)
 -𝘼𝙡𝙨𝙤 𝙄 𝙙𝙤𝙣𝙩 𝙝𝙖𝙫𝙚 𝙜𝙧𝙚𝙖𝙩 𝙚𝙣𝙜𝙡𝙞𝙨𝙝 𝙜𝙧𝙖𝙢𝙢𝙖𝙧｡
 
 ##
-![skill issue](https://tenor.com/tr/view/twilight-sparkle-mlp-my-little-pony-friendship-is-magic-kiss-gif-2218411027958095906)
+![derpy-mlp.gif](https://media.tenor.com/UlsshrFJsHMAAAAi/derpy-mlp.gif)
 
 ## 📫 Let's Connect!
 
