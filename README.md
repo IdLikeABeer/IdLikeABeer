@@ -1,6 +1,7 @@
 # Heyaa!!
 
-I'm IdLikeABeer!(not really)
+I'm Megs!(just a nickname),
+And no I would not like I beer Im joking.
 
 ##
 ![Derpy MLP](https://media.tenor.com/U4lW2alizkwAAAAi/derpy-mlp.gif)
