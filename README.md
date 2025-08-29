@@ -17,7 +17,8 @@ I'm IdLikeABeer!(not really)
 - Im a talktive person so we could have a chat! :^3
 - Feel free to check out my stuff or leave a message.
 ##
-![smg-4-meggy.gif](https://media.tenor.com/5L6N2lA3VnUAAAAM/smg-4-meggy.gif)
+![Pearl and Marina](https://media1.tenor.com/m/S_rsjFlDo_oAAAAC/pearl-marina.gif)
+
 ---
 
 > _“ Derp .”_ – Derpy Hooves(?)
