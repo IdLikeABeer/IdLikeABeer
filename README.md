@@ -20,7 +20,7 @@ Yeah, that’s it! I also have a Strawpage with more info (not much there but st
 
 ##
 
-![Princess Daisy](https://raw.githubusercontent.com/USERNAME/REPO/main/images/princess-daisy-mario.gif)
+![Princess Daisy](https://raw.githubusercontent.com/IdLikeABeer/IdLikeABeer/main/images/princess-daisy-mario.gif)
 
 ---
 
