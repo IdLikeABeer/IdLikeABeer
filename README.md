@@ -13,9 +13,9 @@ I'm in alot of fandoms, mostly inactive since Ive grown of this game, I mostly h
 ## 💭 Facts About Me (Dot)
 Our accounts got merged. I refuse to try and make another account so I take advantage of my friend here. You can learn more on my twt or the first strawpage.
 
-## Meglony smg4 gif
-
-![Meglony smg4 gif](https://tenor.com/tr/view/smg4-melony-meggy-dbz-fusion-fusion-gif-24265668)
+a href="https://tenor.com/view/smg4-melony-meggy-dbz-fusion-fusion-gif-24265668">
+    <img src="SMG4 MelonySMG4 DBZ Fusion">
+</a>
 
 
 ---
