@@ -15,13 +15,14 @@ Some ponies are made by me, some aren’t!!
 Please be understanding that I can make jokes that might come off wrong. If I ever upset you, I’m open to talking it out.
 
 Yeah, that’s it! I also have a Strawpage with more info (not much there but still lol).
+-> https://smg43yuri.straw.page
 
 ---
 
 ##
 
 
-## 💭 I play this game rarely...
+## 💭 I play this game rarely.
 
 Not really into this game anymore — mostly inactive since I’ve grown out of it. I let friends use this account sometimes, so it might not always be me playing.
 
@@ -31,18 +32,3 @@ Not really into this game anymore — mostly inactive since I’ve grown out of 
 
 > _“What you eat is what you are.”_
 
-
-<!--
-**IdLikeABeer/IdLikeABeer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
