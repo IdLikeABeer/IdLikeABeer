@@ -14,8 +14,8 @@ Im in alottt of fandoms. Pony town player since 2022. I mostly play to meet othe
 ## 💭 I play this game rarely...
 Not really into this game anymore, mostly inactive since Ive grown of this game. I let my friends use this account when they need so I might not be the one playing.
 
-##
-![SMG4 Melony](https://tenor.com/g3gxPx3M7xF.gif)
+
+![SMG4 Melony](https://tenor.com/g3gxPx3M7xF/smg4-melony-smg-4-anime-anime-girl-gif)
 ---
 
 > _“ What you eat is what you are.”_
