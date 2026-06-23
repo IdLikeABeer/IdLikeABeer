@@ -20,8 +20,6 @@ Yeah, that’s it! I also have a Strawpage with more info (not much there but st
 
 ##
 
-![Princess Daisy](princess-daisy-mario.gif)
----
 
 ## 💭 I play this game rarely...
 
@@ -30,10 +28,6 @@ Not really into this game anymore — mostly inactive since I’ve grown out of 
 ---
 
 ##
-
-![SMG4 Melony](https://media.tenor.com/REPLACE_THIS_WITH_DIRECT_GIF_URL.gif)
-
----
 
 > _“What you eat is what you are.”_
 
