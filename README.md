@@ -1,17 +1,17 @@
-# Heyaa!!
+# Heya,
 
 I'm Megs 
 And no, I would not like a beer Im joking.
 
 ## Facts About Me (Megs)
 
-Im in alot of fandoms, mostly inactive since Ive grown of this game, I mostly hand it over to my other friend Dot. Been playing since the end of 2022. The last strawpage is mine.
+Im in alot of fandoms, mostly inactive since Ive grown of this game, I mostly hand it over to my other friend Dot. Most ponies are made my me. Been playing since the end of 2022. The last strawpage is mine.
 
 ##
 ![derpy-mlp.gif](https://media.tenor.com/UlsshrFJsHMAAAAi/derpy-mlp.gif)
 
 ## 💭 Facts About Me (Dot)
-Our accounts got merged. I refuse to try and make another account so I take advantage of my friend here. You can learn more on my twt or the first strawpage.
+Our accounts got merged. I refuse to try and make another account so I take advantage of my friend here. You can learn more about me on my twt or the first strawpage. I play pt for fun! Or for other stuff.
 
 
 ---
