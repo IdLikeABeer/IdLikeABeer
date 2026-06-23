@@ -12,7 +12,8 @@ I'm in alot of fandoms, mostly inactive since Ive grown of this game, I mostly h
 
 ## 💭 Facts About Me (Dot)
 Our accounts got merged. I refuse to try and make another account so I take advantage of my friend here. You can learn more on my twt or the first strawpage.
-##SMG4MMeggyggMeggytps://media1.tenor.com/m/mhECqGsl7fUAAAAd/smg-4-meggy.gif)
+
+(https://media1.tenor.com/m/mhECqGsl7fUAAAAd/smg-4-meggy.gif)
 
 
 ---
