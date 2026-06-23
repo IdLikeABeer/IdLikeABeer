@@ -1,6 +1,6 @@
 # Heya,  
 
-Daisymerollin >^<
+Daisymerollin (⁠｡⁠•̀⁠ᴗ⁠-⁠)⁠✧
 
 BTW I would not like a beer, I’m joking,,,
 
@@ -15,7 +15,7 @@ Some ponies are made by me, some aren’t!!
 Please be understanding that I can make jokes that might come off wrong. If I ever upset you, I’m open to talking it out.
 
 Yeah, that’s it! I also have a Strawpage with more info (not much there but still lol).
--> https://smg43yuri.straw.page Il answer gimmicks on the page!!
+-> https://smg43yuri.straw.page Il answer gimmicks on the page!! (⁠⊃⁠｡⁠•́⁠‿⁠•̀⁠｡⁠)⁠⊃
 
 ---
 
@@ -24,7 +24,7 @@ Yeah, that’s it! I also have a Strawpage with more info (not much there but st
 
 ## 💭 I play this game rarely.
 
-Not really into this game anymore — mostly inactive since I’ve grown out of it. I let friends use this account sometimes, so it might not always be me playing. If you see me doing nothing I'm probably offtab, afk just doing something else while the game runs yeah...
+Not really into this game anymore — mostly inactive since I’ve grown out of it. I let friends use this account sometimes, so it might not always be me playing. If you see me doing nothing I'm probably offtab, afk just doing something else while the game runs yeah...(⁠٥⁠↼⁠_⁠↼⁠)
 
 ---
 
