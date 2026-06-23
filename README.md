@@ -1,18 +1,20 @@
 # Heya,
 
-I'm Megs 
-And no, I would not like a beer Im joking.
+Daisymerollin >< 
+And no, I would not like a beer Im joking,,,
 
-## Facts About Me (Megs)
+## Facts About Me
 
-Im in alot of fandoms, mostly inactive since Ive grown of this game, I mostly hand it over to my other friend Dot. Most ponies are made my me. Been playing since the end of 2022. The last strawpage is mine.
+Im in alottt of fandoms. Pony town player since 2022. I mostly play to meet other SMG4 fans. I'm very talkative.I speak tr and eng. Some ponies made by me some not!! Please be understanding that I can make awful and hurtful jokes, if I do upset you anyway we could talk it out. Yeah thats it! I have a strawpage along with all this if you wanna check it out, theres not really much to look but anyway lolz...
 
 ##
 ![derpy-mlp.gif](https://media.tenor.com/UlsshrFJsHMAAAAi/derpy-mlp.gif)
 
-## 💭 Facts About Me (Dot)
-Our accounts got merged. I refuse to try and make another account so I take advantage of my friend here. You can learn more about me on my twt or the first strawpage. I play pt for fun! Or for other stuff.
+## 💭 I play this game rarely...
+Not really into this game anymore, mostly inactive since Ive grown of this game. I let my friends use this account when they need so I might not be the one playing.
 
+##
+![smg4-melony-ikea-lets-go-to-ikea-supermarioglitchy4-gif](https://tenor.com/view/smg4-melony-ikea-lets-go-to-ikea-supermarioglitchy4-gif-9132535048617114067)
 
 ---
 
