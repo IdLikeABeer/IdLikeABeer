@@ -28,7 +28,6 @@ Yeah, that’s it! I also have a Strawpage with more info (not much there but st
 Not really into this game anymore — mostly inactive since I’ve grown out of it. I let friends use this account sometimes, so it might not always be me playing. If you see me doing nothing I'm probably offtab, afk just doing something else while the game runs yeah...(⁠٥⁠↼⁠_⁠↼⁠)
 
 ---
-https://camo.githubusercontent.com/4c9ed2bcf9e86feeb423b835d1c1f3372c8fc6e89984ab696b2c475d03e0495c/68747470733a2f2f6b6f6d617265762e636f6d2f67687076632f3f757365726e616d653d67616d626c696e672d61646469637426636f6c6f723d623463326538266c6162656c3d267374796c653d706c6173746963
 ##
 
 > _“What you eat is what you are.”_
