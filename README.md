@@ -20,7 +20,7 @@ Yeah, that’s it! I also have a Strawpage with more info (not much there but st
 ---
 
 ##
-<img width="196" height="212" alt="pony-town-mel-boop-lie-blinking-padded-toy398-4x" src="https://github.com/user-attachments/assets/a6d21ec4-62ee-49dc-8c43-30015e95ea38" />
+<img width="374" height="374" alt="daisydude-daisydude89" src="https://github.com/user-attachments/assets/9013d1ae-de91-4588-8a6a-6afbf5790cb5" />
 
 
 ## 💭 I play this game rarely.
