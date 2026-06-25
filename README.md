@@ -38,5 +38,5 @@ Not really into this game anymore — mostly inactive since I’ve grown out of 
 ---
 
 
-> _“Stop caring, thatl help you.”_
+> _“Stop caring so much, thatl help you.”_
 
