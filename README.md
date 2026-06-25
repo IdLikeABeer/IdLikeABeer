@@ -1,6 +1,3 @@
-# Heya,  
-
-Daisymerollin (⁠｡⁠•̀⁠ᴗ⁠-⁠)⁠✧
 
 <p align="center">
   <img
@@ -8,6 +5,10 @@ Daisymerollin (⁠｡⁠•̀⁠ᴗ⁠-⁠)⁠✧
     alt="Profile Views"
   />
 </p>
+
+# Heya,  
+
+Daisymerollin (⁠｡⁠•̀⁠ᴗ⁠-⁠)⁠✧
 
 BTW I would not like a beer, I’m joking,,,
 
