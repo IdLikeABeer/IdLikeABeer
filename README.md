@@ -38,5 +38,5 @@ Not really into this game anymore — mostly inactive since I’ve grown out of 
 ---
 
 
-> _“What you eat is what you are.”_
+> _“Stop caring, thatl help you.”_
 
