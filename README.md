@@ -5,7 +5,8 @@
     alt="Profile Views"
   />
 </p>
-# Heya,  
+
+# Heya!
 
 Daisymerollin (⁠｡⁠•̀⁠ᴗ⁠-⁠)⁠✧
 
