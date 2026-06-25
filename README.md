@@ -29,7 +29,7 @@ Not really into this game anymore — mostly inactive since I’ve grown out of 
 ---
 <p align="center">
   <img
-    src="https://komarev.com/ghpvc/?username=IdLikeABeer&label=Profile%20Views&color=#ed7646&style=flat"
+    src="https://komarev.com/ghpvc/?username=IdLikeABeer&label=Profile%20Views&color=ed7646&style=flat"
     alt="Profile Views"
   />
 </p>
