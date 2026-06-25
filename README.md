@@ -22,7 +22,7 @@ Some ponies are made by me, some aren’t!!
 
 Please be understanding that I can make jokes that might come off wrong. If I ever upset you, I’m open to talking it out.
 
-Yeah, that’s it! I'm also making a awesome strawpage soon enough!
+Yeah, that’s kinda it,?
 
 ---
 
