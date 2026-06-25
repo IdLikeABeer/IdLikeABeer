@@ -29,7 +29,7 @@ Not really into this game anymore — mostly inactive since I’ve grown out of 
 ---
 ##
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?IdLikeABeer" alt="Profile Views" />
+  <img src="https://komarev.com/ghpvc/IdLikeABeer" alt="Profile Views" />
 </p>
 > _“What you eat is what you are.”_
 
