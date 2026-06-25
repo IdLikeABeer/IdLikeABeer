@@ -27,9 +27,10 @@ Yeah, that’s it! I'm also making a awesome strawpage soon enough!
 Not really into this game anymore — mostly inactive since I’ve grown out of it. I let friends use this account sometimes, so it might not always be me playing. If you see me doing nothing I'm probably offtab, afk just doing something else while the game runs yeah...(⁠٥⁠↼⁠_⁠↼⁠)
 
 ---
-##
 <p align="center">
-  <img src="https://komarev.com/ghpvc/IdLikeABeer" alt="Profile Views" />
+  <img src="https://komarev.com/ghpvc/?username=IdLikeABeer&color=blue" alt="Profile Views" />
 </p>
+
+
 > _“What you eat is what you are.”_
 
