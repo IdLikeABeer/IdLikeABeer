@@ -29,6 +29,6 @@ Not really into this game anymore — mostly inactive since I’ve grown out of 
 
 ---
 ##
-
+![](https://komarev.com/ghpvc/?IdLikeABeer)
 > _“What you eat is what you are.”_
 
