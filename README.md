@@ -27,7 +27,8 @@ Yeah, that’s it! I'm also making a awesome strawpage soon enough!
 ---
 
 ##
-<img width="374" height="374" alt="daisydude-daisydude89" src="https://github.com/user-attachments/assets/9013d1ae-de91-4588-8a6a-6afbf5790cb5" />
+<img width="640" height="372" alt="dai" src="https://github.com/user-attachments/assets/3038d25c-fc36-4855-92bb-64ce2374a06a" />
+
 
 
 ## 💭 I play this game rarely.
