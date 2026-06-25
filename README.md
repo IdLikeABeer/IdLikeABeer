@@ -2,6 +2,13 @@
 
 Daisymerollin (⁠｡⁠•̀⁠ᴗ⁠-⁠)⁠✧
 
+<p align="center">
+  <img
+    src="https://komarev.com/ghpvc/?username=IdLikeABeer&label=Profile%20Views&color=ed7646&style=flat"
+    alt="Profile Views"
+  />
+</p>
+
 BTW I would not like a beer, I’m joking,,,
 
 ---
@@ -27,12 +34,7 @@ Yeah, that’s it! I'm also making a awesome strawpage soon enough!
 Not really into this game anymore — mostly inactive since I’ve grown out of it. I let friends use this account sometimes, so it might not always be me playing. If you see me doing nothing I'm probably offtab, afk just doing something else while the game runs yeah...(⁠٥⁠↼⁠_⁠↼⁠)
 
 ---
-<p align="center">
-  <img
-    src="https://komarev.com/ghpvc/?username=IdLikeABeer&label=Profile%20Views&color=ed7646&style=flat"
-    alt="Profile Views"
-  />
-</p>
+
 
 > _“What you eat is what you are.”_
 
